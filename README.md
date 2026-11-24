@@ -1,0 +1,1 @@
+# grandeguide-internship-case-study
